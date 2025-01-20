@@ -40,5 +40,12 @@ YETENEKLER KISMI
 
 ![Ekran görüntüsü 2025-01-19 234216](https://github.com/user-attachments/assets/a1f7384f-181c-4e00-8243-b4fa2fdc9258)
 
+![Ekran görüntüsü 2025-01-19 234227](https://github.com/user-attachments/assets/6e80aa60-178b-4e23-9c1e-aff04b8fad49)
+
+VERİTABANI KISMI
+
+![Ekran görüntüsü 2025-01-20 213222](https://github.com/user-attachments/assets/cabae981-4998-43eb-a4de-c803c2f7ab6a)
+
+
 
 
